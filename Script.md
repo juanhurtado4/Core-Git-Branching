@@ -28,6 +28,7 @@ The end.
 
 Sike not the end. Braus the zookeeper is going to fight the Unicorn King.
 Braus violently fights the Unicorn King infront of everyone.
+Unicorn King wins and banishes Braus to the Dothraki Sea.
 
 ## Cast
 
