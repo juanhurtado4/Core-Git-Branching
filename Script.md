@@ -27,7 +27,11 @@ Juan met the Unicorn King who granted him magic powers.
 After much thought Juan, is not going back to his kingdom...
 The end.
 
-Not the end. Juan decided to use his new magic powers to take over the world because he believes he is the prince that was promised.
+Sike not the end. Braus the zookeeper is going to fight the Unicorn King.
+Braus violently fights the Unicorn King infront of everyone.
+Unicorn King wins and banishes Braus to the Dothraki Sea.
+
+Juan decided to use his new magic powers to take over the world because he believes he is the prince that was promised.
 
 ## Cast
 
