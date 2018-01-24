@@ -26,6 +26,8 @@ He took a tentative step through the door and followed the stone path overgrown 
 Juan met the Unicorn King who granted him magic powers.
 The end.
 
+Sike not the end. Braus the zookeeper is going to fight the Unicorn King.
+
 ## Cast
 
 * Young Boy: Eliel
