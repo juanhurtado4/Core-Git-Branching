@@ -24,7 +24,10 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Juan met the Unicorn King who granted him magic powers.
+After much thought Juan, is not going back to his kingdom...
 The end.
+
+Not the end. Juan decided to use his new magic powers to take over the world because he believes he is the prince that was promised.
 
 ## Cast
 
