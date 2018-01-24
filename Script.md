@@ -27,6 +27,7 @@ Juan met the Unicorn King who granted him magic powers.
 The end.
 
 Sike not the end. Braus the zookeeper is going to fight the Unicorn King.
+Braus violently fights the Unicorn King infront of everyone.
 
 ## Cast
 
